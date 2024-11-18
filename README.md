@@ -1,6 +1,6 @@
 Hey there! I'm Matthew (he/him), AKA TocaTheFrog, a soon-to-be software development student born in 2005 with a passion for all things tech. 🌐
 
-Hobbies: Coding, gaming, exploring the latest tech trends, and diving into the world of anime and manga. 🎮💻📚
+Hobbies: Coding, gaming, hockey and diving into the world of anime and manga. 🎮💻📚
 
 Favorite Music: Anything that gets me in the zone, from lo-fi beats to hyperpop and sigilkore. 🎶
 
